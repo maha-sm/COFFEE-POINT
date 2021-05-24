@@ -17,7 +17,7 @@
  </br>
  
  ## _Menu page_
- ![](https://user-images.githubusercontent.com/84526848/119278335-a73ccb80-bc35-11eb-883c-ee09967b4a47.mov)
+ ![](https://user-images.githubusercontent.com/84526848/119404944-95206300-bcf1-11eb-8abc-da0ae55be8ea.mov)
 </br> 
 
 ## _Gallery page_
