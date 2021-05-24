@@ -21,7 +21,7 @@
 </br> 
 
 ## _Gallery page_
-![](https://user-images.githubusercontent.com/84526848/119278391-069adb80-bc36-11eb-9eda-aa91d2175ad0.mov)
+![](https://user-images.githubusercontent.com/84526848/119405662-a9b12b00-bcf2-11eb-9337-c40b7d419a3b.mov)
 </br>
 
 ## _Feedback page_
