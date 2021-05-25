@@ -4,7 +4,7 @@
 
  ## _About The Coffee point_
  
- #### _The coffee point launched in May 2021 is a coffee shop that sells everything related to coffee to all the coffee lovers. Our coffee shop offers wide range of new different coffee all freshly squeezed daily with our signature. We aim to serve our customers the best coffee according to quality and taste. We also would love to get our customers opinion and recommendations in order to higher their expectation._
+ #### _The finest Turkish-Made Coffee with 3 different coffee machines producing variety of coffee types. We offer a delecious variety of coffee made by our professional trained baristas. We have everything from a very classic coffee to our signature made beverages. All of our syrups and ingredients are 100% natural ensuring you the highest quality of taste and health._
  
  ## _Home page_
  
