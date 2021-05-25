@@ -13,7 +13,7 @@
  
  ## _Services page_
  
- ![](https://user-images.githubusercontent.com/84526848/119278309-85dbdf80-bc35-11eb-9b15-052ae095fc12.mov)
+ ![](https://user-images.githubusercontent.com/84526848/119502105-9fd30a80-bd7a-11eb-868b-e13b16602ed9.mov)
  </br>
  
  ## _Menu page_
